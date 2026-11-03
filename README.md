@@ -1,2 +1,2 @@
-# https-nsshop.pathao.shop
+# https-nsshop.pathao.shop/
 আমাদের ওয়েব সাইট ভিজিট করুন এবং অর্ডার করুন https://nsshop.pathao.shop/ প্রিয় গ্রাহক আপনি যে প্রোডাক্টি নিবেন ঐটি সিলেক্ট করে আপনার সঠিক তথ্য দিয়ে অর্ডারটি কনফ্রাম করুন অথবা WhatsApp নাম্বারে nok দিবেন এবং পন্যটির স্ক্রিন সট দিবেন 01614715773 এবং মনিপুরের মধ্যে ডেলিভারি চার্জ ফ্রি 💌😇 monipur bazar, hotapara,Gazipur,Dhaka
